@@ -1,1 +1,0 @@
-Ice-covered condition
